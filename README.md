@@ -17,4 +17,4 @@ Permasalahan yang mereka hadapi saat ini adalah mereka kesulitan untuk mengekstr
 
 ## Hasil Pengerjaan
 
-Ringkasan hasil pengerjaan dapat dilihat pada [link](https://media.licdn.com/dms/image/D562DAQFHu6tdIxvmxA/profile-treasury-document-cover-images_480/0/1711960705551?e=1717311600&v=beta&t=9kceP9EMl3XgQN_9JlSG_DLLF8UTULHO3dK8vJS3LyQ)
+Ringkasan hasil pengerjaan dapat dilihat pada [link](https://drive.google.com/file/d/11D-PRG6XrQaqNag1TE_uoV_SBqypKBhs/view?usp=sharing)
